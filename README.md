@@ -1,4 +1,4 @@
-Hello, I'm Joo Min Cheol. 👋👋👋
+Hello, I'm MinCheol,JOO(Mikeal). 👋👋👋
 I majored in mechanical engineering when I was an undergraduate.💞️💞️
 However, I became deeply interested in AI through one class I took when I was an undergraduate. 🌱 
 I am curious about various industries that can apply AI.
